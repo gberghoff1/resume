@@ -16,6 +16,6 @@ My Spirit Animal
 
 ## Research Interests
 
-Deforestation, overfishing, and reforesation
+Deforestation, precipitation rates, global warming
 
 
