@@ -14,5 +14,8 @@ My Spirit Animal
 /
 [Webpage](https://www.sipa.columbia.edu/)
 
+## Research Interests
+
+Deforestation, overfishing, and reforesation
 
 
